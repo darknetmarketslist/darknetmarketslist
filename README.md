@@ -4,7 +4,7 @@
 Understanding darknet marketplaces and their function is key to grasping the complex duality of freedom and risk that defines the darknet.
 
 
-![image](https://github.com/user-attachments/assets/32ef4d55-d367-41ab-881c-37f28c0b9f7f)
+![image](https://github.com/user-attachments/assets/0a97dbf4-1c8a-4d3f-9227-64bf2458af1d)
 
 
 
