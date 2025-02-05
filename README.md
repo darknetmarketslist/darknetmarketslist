@@ -16,13 +16,13 @@ Understanding darknet marketplaces and their function is key to grasping the com
 [nexusafejew45osqaawl2xqjwmincsfvjwuwtm2fums2kjeon7tbmlid.onion](http://nexusafejew45osqaawl2xqjwmincsfvjwuwtm2fums2kjeon7tbmlid.onion)
 
 # Abacus Market
-[abacusborncrffug2ytuqx3fczqbou4mrev56pfliv7ipjfi4uib7cad.onion](https://abacusborncrffug2ytuqx3fczqbou4mrev56pfliv7ipjfi4uib7cad.onion)
+[abacusborncrffug2ytuqx3fczqbou4mrev56pfliv7ipjfi4uib7cad.onion](http://abacusborncrffug2ytuqx3fczqbou4mrev56pfliv7ipjfi4uib7cad.onion)
 
 # TorZon Market
-[torzon4xtq5x2im3p2y36jdrk2jlsakxmrellcvhzcf5iswzgt7onsad.onion](https://torzon4xtq5x2im3p2y36jdrk2jlsakxmrellcvhzcf5iswzgt7onsad.onion)
+[torzon4xtq5x2im3p2y36jdrk2jlsakxmrellcvhzcf5iswzgt7onsad.onion](http://torzon4xtq5x2im3p2y36jdrk2jlsakxmrellcvhzcf5iswzgt7onsad.onion)
 
 # Ares market
-[aresbuy2pgeaolftrbhcxlsbg5qw35wer77h45egg4omainek2gtpxid.onion](https://aresbuy2pgeaolftrbhcxlsbg5qw35wer77h45egg4omainek2gtpxid.onion)
+[aresbuy2pgeaolftrbhcxlsbg5qw35wer77h45egg4omainek2gtpxid.onion](http://aresbuy2pgeaolftrbhcxlsbg5qw35wer77h45egg4omainek2gtpxid.onion)
 
 
 
